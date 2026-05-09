@@ -46,3 +46,7 @@ I'm a dedicated customer experience, operations and account management professio
 
 📧 [milkahmuchunu@gmail.com](mailto:milkahmuchunu@gmail.com)
 💼 [LinkedIn](https://www.linkedin.com/in/milkah-muchunu-b3aa0b56/)
+
+---
+
+> © 2026 Milkah Muchunu. All documents are original works and may not be reproduced without permission.
