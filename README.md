@@ -49,4 +49,4 @@ I'm a dedicated customer experience, operations and account management professio
 
 ---
 
-> © 2026 Milkah Muchunu. All documents are original works and may not be reproduced without permission.
+> © 2026 Milkah Muchunu. All rights reserved.
