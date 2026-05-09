@@ -2,7 +2,7 @@
 
 **Customer Experience | Process & Workflow Management | Operations Support Professional**
 
-📍 Nairobi, Kenya 🇰🇪 | 🌍 Open to Remote roles
+📍 Nairobi, Kenya | 🌍 Open to Remote Roles
 
 > *Local Talent. Global Reach.*
 
@@ -10,7 +10,7 @@
 
 ## About Me
 
-I'm a dedicated customer experience, operations support and account management professional with 8+ years of experience across fintech, banking, payments, insurance and AI data operations. I'm passionate about building strong client relationships, improving processes and making sure every customer interaction counts.
+I'm a dedicated customer experience, operations and account management professional with 8+ years of experience across fintech, banking, payments, insurance and AI data operations. I'm passionate about building strong client relationships, improving processes and making sure every customer interaction counts.
 
 ---
 
@@ -32,6 +32,13 @@ I'm a dedicated customer experience, operations support and account management p
 - Detail oriented with a focus on accuracy
 - Calm and composed under pressure
 - Quick learner who adapts to new systems and tools
+
+---
+
+## 🏆 Certifications
+
+- 📜 **Effective EU Sanctions Due Diligence in a Fragmented World** — LexisNexis Risk Solutions
+- 📜 **Inside Africa's Fraud War: How Fintechs, Banks & Regulators Can Fight Back** — Sumsub 
 
 ---
 
