@@ -2,7 +2,7 @@
 
 **Customer Experience | Process & Workflow Management | Operations Support Professional**
 
-📍 Nairobi, Kenya | 🌍 Open to Remote Roles
+📍 Nairobi, Kenya | 🌍 Remote | Hybrid | Global
 
 > *Local Talent. Global Reach.*
 
