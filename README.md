@@ -37,8 +37,10 @@ I'm a dedicated customer experience, operations and account management professio
 
 ## 🏆 Certifications
 
+- 📜 **Data Protection Course** — Centre for Intellectual Property and Information Technology Law (CIPIT), Strathmore University
 - 📜 **Effective EU Sanctions Due Diligence in a Fragmented World** — LexisNexis Risk Solutions
-- 📜 **Inside Africa's Fraud War: How Fintechs, Banks & Regulators Can Fight Back** — Sumsub 
+- 📜 **Inside Africa's Fraud War: How Fintechs, Banks & Regulators Can Fight Back** — Sumsub
+ 
 
 ---
 
