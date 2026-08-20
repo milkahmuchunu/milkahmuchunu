@@ -1,6 +1,6 @@
 # Hi, I'm Milkah Muchunu 👋
 
-**Customer Experience | Process & Workflow Management | Business Operations Support **
+Customer Experience | Process & Workflow Management | Business Operations Support 
 
 📍 Nairobi, Kenya | 🌍 Remote | Hybrid | Global
 
@@ -10,7 +10,7 @@
 
 ## About Me
 
-I'm a dedicated customer experience, operations and account management professional with 8+ years of experience across fintech, banking, payments, insurance and AI data operations. I'm passionate about building strong client relationships, improving processes and making sure every customer interaction counts.
+I'm a business operations, client experience and account management professional. I thrive in fast paced, high accuracy environments, resolving escalations, coordinating cross functional workflows and keeping complex processes running smoothly. My background spans process improvement, customer support and operational strategy with a growing interest in how AI and digital tools improve efficiency, enhance customer experiences and support better ways of working.
 
 ---
 
