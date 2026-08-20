@@ -1,6 +1,6 @@
 # Hi, I'm Milkah Muchunu 👋
 
-**Customer Experience | Process & Workflow Management | Operations Support Professional**
+**Customer Experience | Process & Workflow Management | Business Operations Support **
 
 📍 Nairobi, Kenya | 🌍 Remote | Hybrid | Global
 
